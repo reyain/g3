@@ -10,5 +10,5 @@
 **EMAIl**
  - evalroseann@gmail.com
  - reyainamadar@gmail.com
- - jerichorestor#gmail.com
+ - jerichorestor@gmail.com
 - carloreyes00812@gmail.com
